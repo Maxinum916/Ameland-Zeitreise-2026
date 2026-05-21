@@ -1,4 +1,3 @@
-
 ### 🥶 08:00 Uhr – Morgenrunde: Der gefrorene Zeit-Stein
 
 **Die Vorbereitung am Vorabend:**
