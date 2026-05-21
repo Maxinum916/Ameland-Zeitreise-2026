@@ -142,6 +142,6 @@ Der Professor bedankte sich bei seiner Crew für den unglaublichen Mut, den sie 
 
 Der Professor hieb auf den roten Knopf. Ein gewaltiges „WUSCH“-Geräusch riss durch den Raum. Das Licht erlosch für den Bruchteil einer Sekunde. Als es wieder anging, warf der Professor seine verrückte Brille ab, schaute auf sein Handy und riss jubelnd die Arme hoch.
 
-„Es hat geklappt! Wir sind zurück! Es ist Donnerstag, der 21. Mai 2026!“
+„Es hat geklappt! Wir sind zurück! Es ist Sonntag, der ...!“
 
 Unter ohrenbetäubendem Applaus wurde jedes Kind namentlich nach vorne gerufen, um seine offizielle Zeitreise-Urkunde als „Meister der Chronologie“ in Empfang zu nehmen. Mit dem Gepäck in der Hand und unzähligen, fantastischen Erinnerungen im Herzen stiegen die Zeitreisenden in den Bus. Das größte Abenteuer von Ameland war erfolgreich beendet.
