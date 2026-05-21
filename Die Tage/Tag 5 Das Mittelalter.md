@@ -73,6 +73,3 @@ Der Drache oder der Sklave vom Drachen, Beschützer oder so stellt das **letzte
 - Der Drache zuckt zusammen, gibt sich geschlagen und wirft den Kindern eine alte, staubige Kiste vor die Füße.
     
 - Darin liegt das **4. goldene Zahnrad**!
-    
-
-Unter lautem Jubel treten die stolzen Ritter den Rückweg zum Haus an, wo das Zahnrad feierlich auf das Plakat geklebt wird. Das erste Drittel der Zeitmaschine ist geschafft!
