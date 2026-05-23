@@ -26,7 +26,7 @@ Du verteilst die 6 Wappen-Puzzleteile an die Stationsleiter. Jede Gruppe muss ve
     
 - **Station 2: Der Drachenkampf (Hufeisenwerfen):** Die Kinder müssen Hufeisen (oder Ringe) über eine im Boden steckende Stange oder ein Drachenhorn werfen .
     
-- **Station 3: Der Ritt durch den Sumpf:** Die ganze Gruppe muss sich auf „Stelzen“ (Eimer mit Seilen oder Holzklötze mit Seilen oder richtige stelzen je nach Kind) einen Parcours entlang laufen, ohne den Boden zu berühren.
+- **Station 3: Der Ritt durch den Sumpf:** Die ganze Gruppe muss sich auf „Stelzen“ (Eimer mit Seilen oder Holzklötze mit Seilen oder richtige stelzen je nach Kind) einen Parcours entlang laufen, ohne den Boden zu berühren. Oder mit Zeitungspapier 
     
 - **Station 4: Das Festungs-Katapult:** Mit einer improvisierten Schleuder (oder einfach mit der Hand) müssen Wasserbomben oder nasse Schwämme in Eimer geworfen werden.
     
