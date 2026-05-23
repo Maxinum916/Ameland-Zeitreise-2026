@@ -1,4 +1,5 @@
 ## 🎬 Das Drehbuch für Tag 1: Der Zeit-Crash von Ameland
+Am 18.07
 ### Die Vorbereitung (Hinter den Kulissen)
  * **Der Professor:** Ein Betreuer wird als verrückter Professor verkleidet (Laborkittel, zerzauste Haare, eventuell eine Fliegerbrille und Ruß im Gesicht – aufgemalt mit Kohle).
  
