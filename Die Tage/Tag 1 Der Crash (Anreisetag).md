@@ -78,3 +78,6 @@ Der Professor verabschiedet die Kinder in die Zimmer:
 > „Ruht euch gut aus! Ich muss die Maschine für morgen programmieren. Ich weiß noch nicht genau, wo wir landen werden... aber zieht euch morgen früh lieber etwas Warmes an(Je nach Wetter), ich spüre da so ein eiszeitliches Frösteln in den Sensoren... Gute Nacht, Crew!“
 > 
  * **22:00 Uhr:** Bettzeit. Die Kinder gehen mit dem absolut gefesselten Gefühl ins Bett, dass morgen das große Abenteuer beginnt.
+
+
+Das basteln von den zeitreise büchern in den nächsten tagen 
