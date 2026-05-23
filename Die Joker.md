@@ -33,3 +33,9 @@ _Wenn es mal regnet oder ihr einfach Lust auf Rutschen habt._
 - ​**8:00 Morgenrunde:** Eine mysteriöse, nasse Muschel liegt im Essenssaal. Darin ein Zettel (am besten einlaminiert): „Die Wahrheit liegt auf dem Grund des blauen Ozeans.“
 
 - ​**Vormittag/Nachmittag/Abends (Im Schwimmbad):** _Badespaß & Wasserrätsel._ Während die Kinder toben und rutschen, haben die Betreuer einlaminierte Hinweis-Karten dabei (z. B. auf Tauchringen, die hochgeholt werden müssen, oder sie geben sie aus, wenn alle zusammen die große Rutsche gerutscht sind). Auf den Karten stehen römische Ziffern. Zu dem Rätsel.
+
+- ###  ​🃏 Joker-Tag 4: Talentshow
+- 
+- ###  ​🃏 Joker-Tag 4: Gala Dinner
+
+- 
