@@ -14,9 +14,9 @@ Der Professor stürzt morgens in den Saal. Er trägt eine Expeditions-Ausrüstun
 Dieses Spiel funktioniert überragend gut am **Amelander Sandstrand**, kann aber bei schlechtem Wetter auch auf dem Hof mit leeren Umzugskartons oder im Saal mit Bechern (als Stapelspiel) gespielt werden.
 
 **Die Vorbereitung:**
-Man besorgt dir 10–15 alte Filmdosen (oder Überraschungsei-Kapseln). In jede Kapsel legt man einen kleinen Zettel mit einer Hieroglyphe (z.B. ein Auge, eine Schlange, eine Sonne, ein Vogel).
+Man besorgt dir 12–15 alte Filmdosen (oder Überraschungsei-Kapseln). In jede Kapsel legt man einen kleinen Zettel mit einer Hieroglyphe (z.B. ein Auge, eine Schlange, eine Sonne, ein Vogel).
 
- * *Der Trick:* Nur 5 davon sind die "echten" Hieroglyphen für die Tafel. Die anderen sind "Fallen" (Fehlzeichen).
+ * *Der Trick:* Nur 8 davon sind die "echten" Hieroglyphen für die Tafel. Die anderen sind "Fallen" (Fehlzeichen).
 
 **Das Spielprinzip:**
  * Die Kinder treten in ihren Teams an und müssen die gigantischste, stabilste Sand-Pyramide bauen.
@@ -24,11 +24,13 @@ Man besorgt dir 10–15 alte Filmdosen (oder Überraschungsei-Kapseln). In jede 
  * **Die Suche:** Die Betreuer haben die Filmdosen vorher unbemerkt im Sand/Baugelände vergraben oder in den Sandeimern der Kinder versteckt.
  
  * Beim Graben und Bauen finden die Kinder die Kapseln. Am Ende des Vormittags hat jede Gruppe ein paar Hieroglyphen gesammelt. Welches Team die schönste Pyramide gebaut hat, bekommt am Nachmittag ein Extra-Geschenk.
+
+DUSCHEN
  
 ### 📿 16:00 Uhr – Nachmittag: Die Amulett-Werkstatt
 
 **Das Basteln:**
-Die Kinder basteln ägyptische Amulette. Das geht super, indem man runderkneteten Ton oder Salzteig plattdrückt, mit einem Zahnstocher ein Loch für ein Band hineinsticht und coole Muster hineinritzt. Wenn es trocken ist, wird es gold bemalt.
+Die Kinder basteln ägyptische Amulette. Das geht super, indem man runderkneteten Ton oder Salzteig (??)plattdrückt, mit einem Zahnstocher ein Loch für ein Band hineinsticht und coole Muster hineinritzt. Wenn es trocken ist, wird es gold bemalt.
 
 **Die Rätsel-Auflösung (Der Code-Schlüssel):**
 Der Professor teilt die Bastelanleitungen aus. Er sagt beiläufig am Morgen (Oder der Professor hat das hier liegenlassen): *„Ich habe diese Anleitung auf einer alten Papyrusrolle gefunden. Dreht sie bloß nicht um, da steht nur alter Kram drauf!“*
