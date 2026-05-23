@@ -1,5 +1,5 @@
 ### 🥶 08:00 Uhr – Morgenrunde: Der gefrorene Zeit-Stein
-
+19.07
 **Die Vorbereitung am Vorabend:**
 Man nimmt einen flachen, handgroßen Stein. Mit einer Heißklebepistole klebt oder schnizt man tief in ein Stück Pappe das Lösungswort (z. B. **„F E U E R“**). Noch einfacher: Mann ritzt das Wort tief in ein Stück weiches Holz oder dicke Pappe. Das legst du zusammen mit dem Stein in eine Tupperdose, füllst sie mit Wasser und stellst sie in die Gefriertruhe des Hauses.
 
