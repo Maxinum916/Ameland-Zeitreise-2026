@@ -73,4 +73,5 @@ Die Kinder-Teams klopfen nacheinander an die Saaltür. Der Türsteher öffnet nu
     > „Ihr seid clevere Schmuggler und Meister der Magie. Ihr habt das Passwort herausgefunden. Ein Deal ist ein Deal.“
     
 - Er öffnet einen alten Koffer und übergibt den Kindern feierlich das **9. goldene Zahnrad**!
+- Die kinder können auch mit den münzen die sie beim zoll spiel bekommen den entfürten teamer vom vormittag freikaufen können
 
