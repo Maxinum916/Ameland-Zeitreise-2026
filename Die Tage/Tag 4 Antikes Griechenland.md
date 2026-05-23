@@ -1,5 +1,6 @@
 ### 🏛️ 08:00 Uhr – Morgenrunde: Der Blitz des Zeus
 21.07
+
 **Die Vorbereitung:**
 
 Du bastelst aus einer langen Pappe (z. B. einer leeren Teppichrolle oder zusammengeklebten Kartons) einen Baumstamm. Male ihn braun an und schneide oben eine Zacke hinein, sodass es aussieht, als hätte ein Blitz eingeschlagen. Auf diesen Stamm malst du untereinander **5 markante Symbole der griechischen Götter**:
