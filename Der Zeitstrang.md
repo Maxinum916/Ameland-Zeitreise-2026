@@ -1,13 +1,12 @@
 Ich konzentriere mich hier auf das Wichtige: Das Motto, das Morgenrätsel und die Programme um 10:00, 16:00 und 20:00 Uhr.
+### 🧳 [[Tag 1 Der Crash (Anreisetag)]] 18.07.26
 
-### 🧳 [[Tag 1 Der Crash (Anreisetag)]]
-
- * **Später Nachmittag:** Ankunft, Betten beziehen, Koffer auspacken, Haus erkunden.
+ * **Später Nachmittag:** Ankunft 16 Uhr, Gruppen final festlegenm, Betten beziehen, Koffer auspacken, Haus erkunden.
  * **18:30 Uhr:** Abendessen.
  * **20:00 Uhr:** **Das Abendprogramm (Intro):** Ein lauter Knall (Soundeffekt)! Der "verrückte Professor" (ein Betreuer) stürzt in den Raum. Die Zeitmaschine ist kaputtgegangen und in 12 Epochen zersplittert! Ohne die 12 Zahnräder kommt ihr nicht mehr nach Hause. Die Kinder bekommen ihre Zeitreise-Tagebücher.
  * **22:00 Uhr:** Bettzeit.
  
-### 🦕 **[[Tag 2 Die Steinzeit]]**
+### 🦕 **[[Tag 2 Die Steinzeit]]** 19.07.
  * **8:00 Morgenrunde:** Ein eingefrorener Stein mit Rillen wird gefunden.
  * **10:00 Vormittag:** *Mammut-Jagd.* Geländespiel, bei dem Knochen (weiße Stöcke) gesammelt und vor Säbelzahntigern (Fängern) gerettet werden müssen.
  * **16:00 Nachmittag:** *Höhlenmalerei.* Tontöpfe formen & mit Wachskreide rubbeln. (Rubbelt man über den Stein vom Morgen, erscheint das Lösungswort).
