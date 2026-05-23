@@ -26,7 +26,7 @@ Es geht nicht nur um die Anzahl der Knochen! Auf **3 ganz bestimmten Knochen** h
 ### 🎨 16:00 Uhr – Nachmittag: Höhlenmalerei & Das Stein-Rätsel
 Zwei Workshops zum anbieten an:
 
- 1. **Tontöpfe & Schmuck:** Die Kinder kneten aus Ton oder Salzteig kleine steinzeitliche Schalen oder durchbohren Muscheln für Ketten.
+ 1. **Tontöpfe & Schmuck:** Die Kinder kneten aus Ton oder Salzteig (!!) kleine steinzeitliche Schalen oder durchbohren Muscheln für Ketten.
  
  2. **Die Höhlenwand:** Ein riesiges Stück Packpapier (oder alte Bettlaken) wird an die Wand gehängt. Die Kinder malen mit Kohle (echte Grillkohle funktioniert super!) und Erdfarben ihre Hände und wilde Tiere auf die Wand.
  
