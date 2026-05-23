@@ -40,6 +40,8 @@ Buble balls ab 14 Uhr
 
 **Das Basteln:**
 
+Flagen bastel für die piraten 
+
 Die Kinder basteln aus dicker Pappe ihre eigenen Ritterschilde. Sie schneiden sie aus, kleben auf der Rückseite eine Halteschlaufe fest und bemalen die Vorderseite mit ihren ganz eigenen Gruppenwappen. Wer möchte, kann sich auch ein Pappschwert basteln und mit Alufolie umwickeln.
 
 **Die Rätsel-Auflösung:**
