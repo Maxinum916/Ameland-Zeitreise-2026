@@ -33,7 +33,8 @@ Du verteilst die 6 Wappen-Puzzleteile an die Stationsleiter. Jede Gruppe muss ve
 - **Station 4: Das Festungs-Katapult:** Mit einer improvisierten Schleuder (oder einfach mit der Hand) müssen Wasserbomben oder nasse Schwämme in Eimer geworfen werden.
     
 - **Station 5: Der Schwert-Schutz:** Ein Kind bekommt die Augen verbunden und muss, nur von den Rufen der Gruppe gelenkt, einen Schatz aus der Mitte eines Kreises holen, ohne von einem „wachenden Ritter“ (Betreuer) abgeschlagen zu werden.
-    
+
+Buble balls ab 14 Uhr    
 
 ### 🛡️ 16:00 Uhr – Nachmittag: Die Burg-Schmiede & Das Drachen-Rätsel
 
