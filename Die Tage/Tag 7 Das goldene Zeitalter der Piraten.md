@@ -46,7 +46,7 @@ Während des Bastelns bietet ein Betreuer einen kleinen **Seemannsknoten-Worksh
 - Haben die Kinder den Knoten geschafft, bekommen sie das fehlende Stück. Sie setzen die Karte komplett zusammen und sehen nun ganz genau, wo das rote X auf dem Gelände liegt!
 
 
-### ⚓ 20:00 Uhr – Abend: Die Geisterpiraten-Jagd (Nachtspiel)
+### ⚓ 20:00 Uhr – Abend: Die Geisterpiraten-Jagd (Nachtspiel) BZw. Flaggen klau
 
 Das absolute Highlight des Tages! Sobald es draußen dunkel ist, wird das Gelände zum Sperrgebiet der Geisterpiraten.
 
