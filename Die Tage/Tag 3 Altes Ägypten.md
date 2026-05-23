@@ -1,4 +1,5 @@
 ### 🏜️ 08:00 Uhr – Morgenrunde: Der Fluch der leeren Tafel
+20.07
 **Die Vorbereitung:**
 Man bastelst eine "Fluch-Tafel" aus einem Stück alter Pappe oder Sperrholz. Darauf malt man mit schwarzem Filzstift 5 leere Kästchen. Über den Kästchen steht in großen Buchstaben: **"DER FLUCH DES PHARAO"**.
 **Die Aktion:**
