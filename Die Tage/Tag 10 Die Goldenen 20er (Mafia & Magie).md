@@ -3,6 +3,8 @@
 
 **Die Vorbereitung:**
 
+Von der polizei jemanden mitnehmen lassen 
+
 Man druckt oder schreibt einen coolen „Erpresserbrief“. Um den 20er-Jahre-Look zu treffen, schneidet man am besten Buchstaben aus einer alten Zeitung aus und klebst sie auf. Der Text lautet: _„Ich habe euer Zahnrad. Wenn ihr es wiederhaben wollt, müsst ihr heute Abend zu meiner geheimen Flüsterkneipe kommen. Das Passwort lautet...“_
 
 - **Der Morse-Code:** Statt des Passworts klebst du eine Reihe von Punkten und Strichen auf den Brief: `... .--. . .- -.- . .- ... -.--` (Das bedeutet gemorst: **SPEAKEASY**).
