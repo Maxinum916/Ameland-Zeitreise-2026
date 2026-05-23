@@ -1,5 +1,5 @@
 ### ⚔️ 08:00 Uhr – Morgenrunde: Der Schrei des Herolds
-
+22.07
 **Die Vorbereitung:**
 
 Du schneidest aus einer großen, dicken Pappe ein prachtvolles, farbiges Königswappen aus (z. B. mit einem gemalten Löwen oder Adler darauf). Dieses Wappen zerschneidest oder zerbrichst du in **6 markante Puzzleteile**.
